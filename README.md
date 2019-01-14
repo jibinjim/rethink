@@ -13,4 +13,4 @@ Veendum Njan - Jibin
 
 Kuthithirupp reloaded
 
-Nalla biriyani aayalo? 
+Biriyani mathi
